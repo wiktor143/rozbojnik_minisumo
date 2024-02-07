@@ -1,0 +1,1 @@
+# rozbojnik_minisumo
